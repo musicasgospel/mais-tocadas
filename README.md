@@ -24,6 +24,7 @@ Deus, as musicas gospel tem vários generos, como no mundo musical também exist
   Uma nova safra de cantores gospel foram lançados no ano passado, priscilla alcantara, gabriela rocha, eli soares, entre outros...
   
   Os lançamentos gospel estão por ai então fique esperto para não perder nada, as musicas gospel 2017 está ai e a são inumeros lançamentos por dia. 
+  Os conteúdos foram retirados do site <a href="https://melhoresmusicas.net/">melhoresmusicas.net</a>.
   
   
 
