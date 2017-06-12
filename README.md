@@ -17,7 +17,11 @@ Deus, as musicas gospel tem vários generos, como no mundo musical também exist
  
  Segue a lista de pessoas com mais busca e solicitações do meio gospel hoje. 
  
-  Em primeiro vem uma cantora que fez sucesso a alguns anos atras, mas devido a abranger inumeros meios ela faz muito sucesso ainda hoje que é a 
+  Em primeiro vem uma cantora que fez sucesso a alguns anos atras, mas devido a abranger inumeros meios ela faz muito sucesso ainda hoje que é a cantora Damares vem liderando ainda o meio gospel, com vários lançamentos e musicas ótimas, mas as musicas evangélicas vem com vários entre outros. 
   
-  A cantora 
+  Cantores como fernandinho, bruna karla, anderson freire que foi lançado ano passado para as midias. 
+  
+  Uma nova safra de cantores gospel foram lançados no ano passado, priscilla alcantara, gabriela rocha, eli soares, entre outros...
+  
+  
  
